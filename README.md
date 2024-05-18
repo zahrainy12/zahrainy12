@@ -1,4 +1,4 @@
-### Hi there 👋
+### I'm Zah Rainy 👋
 
 Undergraduate Informatics Student of Universitas Pembangunan Nasional "Veteran" Jakarta
 
